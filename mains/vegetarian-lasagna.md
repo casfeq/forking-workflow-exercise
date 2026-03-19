@@ -61,3 +61,4 @@
      - Gluten
      - Milk
      - Onions
+     - Garlic
