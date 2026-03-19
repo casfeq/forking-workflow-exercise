@@ -26,7 +26,7 @@ Set aside one-third of the pastry for the lid. Roll out the remaining pastry on 
 
 Press the pastry firmly into the dish and up the sides, making sure there are no air bubbles. Chill the pastry in the fridge while you prepare the filling.
 
-Preheat the oven to 200C/180C Fan/Gas 6. Place a baking tray into the oven to preheat.
+Preheat the oven to 200C/180C (392-356 Fahrenheit) Fan/Gas 6. Place a baking tray into the oven to preheat.
 
 For the filling, mix the sugar, cinnamon and cornflour in a large bowl. Stir in the apples until coated.
 
