@@ -4,7 +4,7 @@
 - 475 ml heavy cream
 - 240 ml whole milk
 - 150 g sugar
-- 15 ml vanilla extract
+- 15 ml fresh vanilla extract
 - Pinch of salt
 
 ## Instructions
